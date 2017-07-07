@@ -9,3 +9,5 @@ http://edtechcurmudgeon.blogspot.com/2017/07/the-undead-factoid-who-decided-65-o
 https://www.technologyreview.com/s/608231/by-2040-more-than-half-of-all-new-cars-could-be-electric/
 
 https://techcrunch.com/2017/07/06/frances-climate-plan-includes-ending-fossil-fuel-vehicle-sales-by-2040/
+
+https://campustechnology.com/articles/2017/07/06/top-3-trends-affecting-u.s.-test-preparation-market-through-2021.aspx
