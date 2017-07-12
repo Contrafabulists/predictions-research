@@ -13,3 +13,7 @@ https://hayimpinson.com/9-how-to-predict-the-future-of-mixed-reality-with-robert
 https://www.bcg.com/en-ca/expertise/industries/automotive/autonomous-vehicle-adoption-study.aspx
 
 https://about.bnef.com/electric-vehicle-outlook/
+
+http://www.cmrubinworld.com/the-global-search-for-education-jobsolescence-does-charles-fadel-have-the-answers
+
+http://www.dailycal.org/2017/07/10/online-courses-will-eventually-replace-traditional-education/
