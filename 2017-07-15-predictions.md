@@ -1,5 +1,9 @@
 ## The Week in Predictions
 
+https://www.edtechstrategies.com/blog/are-we-on-track-part-2/
+
+http://www.infodocket.com/2017/07/12/uk-market-forecast-e-books-sales-to-drop-as-bookshelf-resurgence-sparks-shelfie-craze/
+
 http://www.longviewoneducation.org/field-guide-jobs-dont-exist-yet/
 
 https://www.sbnation.com/a/17776-football
