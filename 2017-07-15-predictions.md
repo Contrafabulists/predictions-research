@@ -21,3 +21,5 @@ https://about.bnef.com/electric-vehicle-outlook/
 http://www.cmrubinworld.com/the-global-search-for-education-jobsolescence-does-charles-fadel-have-the-answers
 
 http://www.dailycal.org/2017/07/10/online-courses-will-eventually-replace-traditional-education/
+
+https://campustechnology.com/articles/2017/07/13/cloud-and-mobile-to-drive-increase-in-it-spending-worldwide.aspx
