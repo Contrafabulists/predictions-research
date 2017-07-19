@@ -7,3 +7,5 @@ https://www.fastcompany.com/3025722/will-you-ever-be-able-to-afford-a-self-drivi
 https://www.ecampusnews.com/featured/featured-on-ecampus-news/online-learning-predictions/
 
 http://www.educationdive.com/news/obstacles-persist-for-hitting-90-grad-rate-by-2020/447167/
+
+https://techcrunch.com/2017/07/16/dear-united-autonomous-cars-will-pull-you-out-of-your-seat/
