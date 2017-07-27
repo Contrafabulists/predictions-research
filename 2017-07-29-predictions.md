@@ -14,4 +14,8 @@ https://campustechnology.com/articles/2017/07/25/research-it-spending-to-hit-3.5
 
 http://boingboing.net/2017/07/25/adobe-to-finally-pull-plug-o.html
 
+http://seriousplayconf.com/downloads/2017-2022-global-game-based-learning-market/
+
+https://www.technologyreview.com/s/608347/britain-is-getting-rid-of-the-internal-combustion-engine/
+
 https://www.wired.com/story/techs-most-dubious-promises-from-bill-gates-to-elon-musk/
