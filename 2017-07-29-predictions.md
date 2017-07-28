@@ -19,3 +19,5 @@ http://seriousplayconf.com/downloads/2017-2022-global-game-based-learning-market
 https://www.technologyreview.com/s/608347/britain-is-getting-rid-of-the-internal-combustion-engine/
 
 https://www.wired.com/story/techs-most-dubious-promises-from-bill-gates-to-elon-musk/
+
+http://www.hbcudigest.com/about-50-hbcus-will-survive-the-next-decade-its-time-to-start-investing-in-them/
