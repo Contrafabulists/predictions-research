@@ -1,5 +1,11 @@
 ## Week in Predictions
 
+https://www.technologyreview.com/the-download/609413/an-apple-ar-headset-coming-in-2020/
+
+https://www.nytimes.com/interactive/2017/11/08/magazine/tech-design-future-autonomous-car-20-percent-sex-death-liability.html
+
+https://www.theatlantic.com/magazine/archive/2017/12/what-happens-if-china-makes-first-contact/544131/
+
 https://www.ecampusnews.com/campus-administration/educause-top-10-issues-2018/
 
 http://www.autonews.com/article/20171105/INDUSTRY_REDESIGNED/171109944/bob-lutz:-kiss-the-good-times-goodbye
