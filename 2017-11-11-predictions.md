@@ -6,6 +6,8 @@ https://www.nytimes.com/interactive/2017/11/08/magazine/tech-design-future-auton
 
 https://www.theatlantic.com/magazine/archive/2017/12/what-happens-if-china-makes-first-contact/544131/
 
+https://techcrunch.com/2017/11/08/are-flying-cars-the-future-of-transportation-or-an-inflated-expectation/
+
 https://www.ecampusnews.com/campus-administration/educause-top-10-issues-2018/
 
 http://www.autonews.com/article/20171105/INDUSTRY_REDESIGNED/171109944/bob-lutz:-kiss-the-good-times-goodbye
