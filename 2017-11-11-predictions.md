@@ -1,5 +1,7 @@
 ## Week in Predictions
 
+https://techcrunch.com/2017/11/08/voice-enabled-smart-speakers-to-reach-55-of-u-s-households-by-2022-says-report/
+
 https://www.technologyreview.com/the-download/609413/an-apple-ar-headset-coming-in-2020/
 
 https://www.nytimes.com/interactive/2017/11/08/magazine/tech-design-future-autonomous-car-20-percent-sex-death-liability.html
