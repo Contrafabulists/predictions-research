@@ -12,6 +12,8 @@ https://techcrunch.com/2017/11/08/are-flying-cars-the-future-of-transportation-o
 
 https://www.ecampusnews.com/campus-administration/educause-top-10-issues-2018/
 
+https://www.ecampusnews.com/it-newsletter/report-oer-video-take-lead-campus/
+
 http://www.autonews.com/article/20171105/INDUSTRY_REDESIGNED/171109944/bob-lutz:-kiss-the-good-times-goodbye
 
 https://campustechnology.com/articles/2017/11/06/information-security-no-1-it-issue-for-2018.aspx
