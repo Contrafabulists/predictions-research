@@ -1,5 +1,7 @@
 ## Week in Predictions
 
+https://thenextweb.com/artificial-intelligence/2017/11/10/googles-ai-guru-predicts-humans-and-machines-will-merge-within-20-years/
+
 https://techcrunch.com/2017/11/08/voice-enabled-smart-speakers-to-reach-55-of-u-s-households-by-2022-says-report/
 
 https://www.technologyreview.com/the-download/609413/an-apple-ar-headset-coming-in-2020/
